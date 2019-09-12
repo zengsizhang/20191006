@@ -1,7 +1,7 @@
 # 1999届高中5班
 ## 2019同学聚会博饼物品
-### 一秀（160.8）：
-#### 物品1(121,8)： 12包/条 谷风一木4层印花手帕纸（￥5.9） 10件(55)*2+1(5.9)件*2
+### 一秀（32/￥160.8）：
+#### 物品1(22/￥121.8)： 12包/条 谷风一木4层印花手帕纸（￥5.9） 10件(55)*2+1(5.9)件*2
 ##### 链接地址：<https://you.163.com/item/detail?id=1124015&_stat_area=mod_1_item_2&_stat_id=1013001&_stat_referer=itemList>
 ![纸巾](https://yanxuan-item.nosdn.127.net/ce71c418bba5945dd468fbf089313567.png?imageView&thumbnail=430x430&quality=95)
 
