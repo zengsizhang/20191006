@@ -5,7 +5,7 @@
 ##### 链接地址：<https://you.163.com/item/detail?id=1124015&_stat_area=mod_1_item_2&_stat_id=1013001&_stat_referer=itemList>
 ![纸巾](https://yanxuan-item.nosdn.127.net/ce71c418bba5945dd468fbf089313567.png?imageView&thumbnail=430x430&quality=95)
 
-#### 物品2(39)：衣柜可挂式除湿袋（5.9）*10
+#### 物品2(10/￥39)：衣柜可挂式除湿袋（5.9）*10
 ##### 链接地址：<https://you.163.com/item/detail?id=3823002&_stat_area=mod_1_item_1&_stat_id=1005000&_stat_referer=itemList>
 ![](https://yanxuan-item.nosdn.127.net/910eba5eb892cb555e1d21d6a5a00c5b.png?imageView&thumbnail=400x400&quality=95)
 ### 二举（16/151.8）：
