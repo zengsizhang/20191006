@@ -28,9 +28,9 @@
 ##### 链接地址：<https://you.163.com/item/detail?id=3550216>
 ![](https://yanxuan-item.nosdn.127.net/0cb332a4df553f360a6a993be6ea5f9b.png?imageView&thumbnail=430x430&quality=95)
 ### 对堂（2/￥178）
-#### 物品1（2/￥178）：可折叠电子厨房秤(#79) * 2
-##### <https://you.163.com/item/detail?id=1663047&_stat_area=mod_1_item_293&_stat_id=1005000&_stat_referer=itemList>
-![](https://yanxuan-item.nosdn.127.net/46a842882ba6f8fb6063b189b1b13330.jpg?imageView&thumbnail=430x430&quality=95)
+#### 物品1（2/￥178）：小度智能音箱Play 百度智能硬件 WiFi/蓝牙音箱 智能对话 智能机器人 智能音响 智能投屏 带娃故事机 (￥89) * 2
+##### <https://item.jd.com/100003862121.html>
+![](https://img30.360buyimg.com/sku/jfs/t1/37241/6/14359/701668/5d2bed03Ee074f9d0/aaf2f69cd8b6083d.jpg)
 
 ### 状元（1）
 ## 200现金
